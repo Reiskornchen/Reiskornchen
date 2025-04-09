@@ -1,6 +1,6 @@
 # ✨ Hi, ich bin Mai-Anh
 
-💻 Online findet man mich öfters unter dem Namen Reiskörnchen, z.B in Videospielen oder eben hier auf GitHub 👀🍚
+💻 Online findet man mich auch öfters unter dem Namen Reiskörnchen, z.B in Videospielen oder eben hier auf GitHub 👀🍚
 
 📚 Momentan mache ich meinen Bachelor in Wirtschaftsinformatik an der DHBW Mannheim  
 🌱 Ich probiere hier und da was aus und mal schauen, was hängen bleibt
